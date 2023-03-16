@@ -1,0 +1,1 @@
+# MinjiKim0217.github.io
